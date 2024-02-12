@@ -3,7 +3,7 @@
 Profil : https://osu.ppy.sh/users/15101580
 
 # Current Area (13/02/24 - ?)
-![](https://i.imgur.com/uDtbUkC.png)
+![](https://i.imgur.com/rjO6mFe.png)
 
 # 20/11/23 - 13/02/24
 ![](https://i.imgur.com/uDtbUkC.png)
